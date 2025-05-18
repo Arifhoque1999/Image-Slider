@@ -5,3 +5,5 @@
 
 https://github.com/user-attachments/assets/572f7f49-da39-4375-9be5-4a49893c11b6
 
+
+![Ace Your Interview with Tech Skills](https://github.com/user-attachments/assets/fa5b44fc-c685-4cbe-93c4-f6086279e941)
